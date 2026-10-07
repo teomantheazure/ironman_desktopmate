@@ -2,6 +2,8 @@
 # ironman_desktopmate
 IronMan Desktop Mate with AI
 
+Buy from here: https://www.shopier.com/teomantheazure/51459718
+
 IRON MAN — Desktop Assistant
 Version: 1.0
 Developer: teomantheazure
